@@ -20,7 +20,7 @@ I enjoy participating in **hackathons** with my friends, solving non-standard pr
 
 ## 📫 Get in touch
 - Email: [vriyazzz100@gmail.com](mailto:vriyazzz100@gmail.com)
-- LinkedIn: [linkedin.com/in/riyaz-vagapov](https://www.linkedin.com/in/riyaz-vagapov-b262ab350)
+- LinkedIn: [linkedin.com/in/riyaz-vagapov](https://www.linkedin.com/in/riyaz-vagapov)
 
 ---
 
